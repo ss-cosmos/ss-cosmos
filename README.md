@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @ss-cosmos
+- 👀 I’m interested in web dev 
+- 🌱 I’m currently learning JS
+- 📫 How to reach me ? my discord is c0sm0s____
